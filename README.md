@@ -1,1 +1,0 @@
-# ahmetacikgoz.github.io
